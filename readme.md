@@ -1,4 +1,5 @@
-there's been a lot of death near me lately. i’m finding that grief can be a moving force.
+there's been a lot of death near me lately.  
+i’m finding that grief can be a moving force.
 <br/>
 <br/>
 .
@@ -21,7 +22,7 @@ how long will the universe wait for me?
 i imagine how disappointed i'd be if i were to go tomorrow,
 how much i would have left inside of me. traces, passed along to everyone else.
 
-things happen, you know. it's not my time yet, i know. but <br/>
+things happen, you know. it's not my time yet, i know. but  
 you never know.
 
 i think about what i can do now, after i catch the pesky *what have you been doing all this time? why haven't you done anything yet?*
